@@ -1,4 +1,4 @@
-### 👋 Hi, I'm Gloria, and I'm passionate about Human Psychology, Data analysis, and writing.
+### 👋 Hi, I'm Gloria, and I'm passionate about Human Psychology, Research and Data analysis, and writing.
 --------------------------------------------------------------------------------
 #### Analysis Reports and Presentations:
 <br/>
